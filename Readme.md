@@ -1,1 +1,1 @@
-This is a an open source project
+My name is Baru, I am the librarian at BIUST, I also coordinate technology mediated library aplications. I have Masters degree in Digital LibraryLearning acquired fron Oslo University college,Tallin University and University of Parma.
